@@ -1,4 +1,4 @@
-## ⚫️  Coming soon
+# ⚫️  Coming soon
 
-🤔  Subscribe [here](http://eepurl.com/hbVsQL) for updates.
+## 🤔  Subscribe [here](http://eepurl.com/hbVsQL) for updates.
 
